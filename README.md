@@ -14,7 +14,6 @@
 |  10oz  | Marshmallows |
 | 5c | Rice Krispies |
 | a good, healthy pinch  | Salt |
-|   |   |
 
 
 
@@ -23,3 +22,5 @@
 1. Take of heat and add rice krispies
 1. Put in pan and let cool.
 1. Sneak bites while letting cool.
+
+[please click for gif](https://giphy.com/gifs/nailedIt-nailed-it-netflix-nicole-byers-1j9IQUNjobK3wnHKaN)
