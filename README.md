@@ -19,7 +19,7 @@
 
 1. Melt butter in a large pot over medium heat. Let it hang out, stirring occasionally until a rich golden brown, it smells so so good.
 1. Add marshmallows and that healthy pinch of salt, stir until melted.
-1. Take of heat and add rice krispies
+1. Take off heat and add rice krispies.
 1. Put in pan and let cool.
 1. Sneak bites while letting cool.
 
